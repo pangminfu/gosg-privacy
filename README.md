@@ -44,4 +44,4 @@ GoSG is not directed at children under 13 and does not knowingly collect their p
 We may update this policy. The date above shows the latest version.
 
 ## Contact
-Questions: **YOUR_EMAIL@example.com**
+Questions: **loapif@gmail.com**
